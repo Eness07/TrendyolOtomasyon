@@ -1,0 +1,2 @@
+# TrendyolOtomasyon
+TrendyolOtomasyon
